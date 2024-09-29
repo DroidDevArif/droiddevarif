@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **aliarifspn1212@gmail.com**
 
-- 📄 Know about my experiences [http://taiyabali.techpassmaster.com/wp-content/uploads/2023/04/CV-TaiyabApp-Developer-updated-2023.pdf](http://taiyabali.techpassmaster.com/wp-content/uploads/2023/04/CV-TaiyabApp-Developer-updated-2023.pdf)
+- 📄 Know about my experiences [(https://www.linkedin.com/in/arif-ali-92748020a/)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
